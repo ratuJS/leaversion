@@ -1,0 +1,2 @@
+# leaversion
+Gunakan dengan bijak
